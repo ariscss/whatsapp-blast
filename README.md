@@ -1,2 +1,2 @@
 # whatsapp-blast
-Anti Banned, Suspend
+Anti Banned, Suspend, Digital Marketing
